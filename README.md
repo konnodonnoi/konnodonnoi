@@ -21,7 +21,6 @@
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-  <a href="https://web.telegra.org/me_konnoi" target="blank"><img align="center" src="https://www.freepnglogos.com/pics/telegram-png" alt="konno_donnoi" height="30" width="40" /></a>
 <a href="https://codepen.io/konno_donnoi" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/codepen.svg" alt="konno_donnoi" height="30" width="40" /></a>
 <a href="https://twitter.com/konno_donnoi" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="konno_donnoi" height="30" width="40" /></a>
 <a href="https://linkedin.com/in/https://www.linkedin.com/mwlite/in/kendrick-sabo-0b900a175" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/mwlite/in/kendrick-sabo-0b900a175" height="30" width="40" /></a>
