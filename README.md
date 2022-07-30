@@ -11,7 +11,7 @@
 
 - 🔭 i’m currently working on [an e-commerce app for basic clothing and gadgets ordering](https://github.com/konnodonnoi/e-commece-app-)
 
-- 🌱 i’m currently learning **more pertaining frontend and i also intend on going fullstack mode pretty soon**
+- 🌱 i’m currently learning **more pertaining frontend and i also intend going fullstack mode pretty soon**
 
 - 👯 i’m looking to collaborate on **frontend projects and also opened to new challenges**
 
