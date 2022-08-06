@@ -55,7 +55,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... new and open source projects
 - 🤔 I’m looking for help with ... finding a job
 - 💬 Ask me about ... yeah ask!!
-- 📫 How to reach me: ...
+- 📫 How to reach me: ... neh
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... gg
 -->
