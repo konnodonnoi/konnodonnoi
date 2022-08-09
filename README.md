@@ -57,5 +57,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... yeah ask!!
 - 📫 How to reach me: ... neh
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... gg
+- ⚡ Fun fact: ... gg....
 -->
