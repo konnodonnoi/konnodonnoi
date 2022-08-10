@@ -54,7 +54,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ... something most definitely 
 - 👯 I’m looking to collaborate on ... new and open source projects
 - 🤔 I’m looking for help with ... finding a job
-- 💬 Ask me about ... yeah ask!!
+- 💬 Ask me about ... hidden aspecr
 - 📫 How to reach me:
 - 😄 Pronouns:
 - ⚡ Fun fact:
