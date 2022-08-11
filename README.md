@@ -17,7 +17,7 @@
 
 - 📫 how to reach me **saboanamero8521@gmail.com**
 
-- ⚡ Fun fact **i'm a heavily minded otaku... i live and breathe anime!**
+- ⚡ fun fact **i'm a heavily minded otaku... i live and breathe anime!**
 
 <h3 align="left">connect with me:</h3>
 <p align="left">
