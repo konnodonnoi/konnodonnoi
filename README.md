@@ -15,7 +15,7 @@
 
 - 👯 i’m looking to collaborate on **frontend projects and also opened to new challenges**
 
-- 📫 How to reach me **saboanamero8521@gmail.com**
+- 📫 how to reach me **saboanamero8521@gmail.com**
 
 - ⚡ Fun fact **i'm a heavily minded otaku... i live and breathe anime!**
 
