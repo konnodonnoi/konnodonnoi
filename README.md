@@ -59,6 +59,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... finding a job
 - 💬 Ask me about ... hidden aspecr
 - 📫 How to reach me: bloop
-- 😄 Pronouns: beep
+- 😄 Pronouns:
 - ⚡ Fun fact:
 -->
