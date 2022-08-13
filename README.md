@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... hidden aspecr
 - 📫 How to reach me: bloop
 - 😄 Pronouns: beep
-- ⚡ Fun fact: bleh
+- ⚡ Fun fact:
 -->
