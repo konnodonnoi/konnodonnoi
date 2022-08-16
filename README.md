@@ -56,7 +56,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on ... staying alive man
 - 🌱 I’m currently learning ... how to stay alive
 - 👯 I’m looking to collaborate on ... projects that promotes staying alive
-- 🤔 I’m looking for help with ... 
+- 🤔 I’m looking for help with ... staying hopefully alive
 - 💬 Ask me about ... 
 - 📫 How to reach me: 
 - 😄 Pronouns:
