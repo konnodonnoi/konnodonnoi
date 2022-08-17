@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... 
 - 📫 How to reach me: how?? lmfao call the suicide guide
 - 😄 Pronouns: dead and deaded
-- ⚡ Fun fact:
+- ⚡ Fun fact: dead lasdaminade
 -->
