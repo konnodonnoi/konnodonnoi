@@ -59,6 +59,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... staying hopefully alive
 - 💬 Ask me about ... 
 - 📫 How to reach me: how?? lmfao call the suicide guide
-- 😄 Pronouns: dead and deaded
+- 😄 Pronouns:
 - ⚡ Fun fact: 
 -->
