@@ -58,7 +58,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... projects that promotes staying alive
 - 🤔 I’m looking for help with ... staying hopefully alive
 - 💬 Ask me about ... 
-- 📫 How to reach me: 
-- 😄 Pronouns:
+- 📫 How to reach me: shuush
+- 😄 Pronouns: shut up bitch
 - ⚡ Fun fact: 
 -->
