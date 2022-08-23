@@ -57,7 +57,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ... shat
 - 👯 I’m looking to collaborate on ... shat
 - 🤔 I’m looking for help with ... shat
-- 💬 Ask me about ... 
+- 💬 Ask me about ... shat
 - 📫 How to reach me: 
 - 😄 Pronouns:
 - ⚡ Fun fact: 
