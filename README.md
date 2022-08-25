@@ -54,7 +54,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... shat
-- 🌱 I’m currently learning ... shat
+- 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ... shat
 - 🤔 I’m looking for help with ... shat
 - 💬 Ask me about ... shat
