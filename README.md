@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... shat
 - 📫 How to reach me: sheyyyyyttyt
 - 😄 Pronouns: shat
-- ⚡ Fun fact: shatting
+- ⚡ Fun fact: shattingxnaiakksxox
 -->
