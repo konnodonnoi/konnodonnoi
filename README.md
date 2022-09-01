@@ -58,7 +58,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... 
 - 🤔 I’m looking for help with ... 
 - 💬 Ask me about ... shat
-- 📫 How to reach me: sheyyyyyttyt
+- 📫 How to reach me:
 - 😄 Pronouns:
 - ⚡ Fun fact:
 -->
