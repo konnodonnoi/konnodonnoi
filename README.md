@@ -59,6 +59,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... shat
 - 💬 Ask me about ... shat tfsdgiigf
 - 📫 How to reach me: 
-- 😄 Pronouns:
+- 😄 Pronouns: shat
 - ⚡ Fun fact: 4lines 
 -->
