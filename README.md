@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... shat tfsdgiigf
 - 📫 How to reach me: hfgj
 - 😄 Pronouns: shat hjgdddd sha van
-- ⚡ Fun fact: 4lines dj jaw and
+- ⚡ Fun fact: 4lines dj 
 -->
