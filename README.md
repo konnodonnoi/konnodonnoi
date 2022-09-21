@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... shat tfsdgiigf
 - 📫 How to reach me: hfgj ghost 
 - 😄 Pronouns: shat hjgdddd sha van
-- ⚡ Fun fact: 4lines dj 
+- ⚡ Fun fact: 4lines dj calabrese 
 -->
