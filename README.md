@@ -58,7 +58,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... 
 - 🤔 I’m looking for help with ... shat dksksjs
 - 💬 Ask me about ... shat tfsdgiigf
-- 📫 How to reach me: hfgj ghost did
+- 📫 How to reach me: hfgj ghost did so ah in
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf f
 - ⚡ Fun fact: 4lines dj calabrese b God
 -->
