@@ -53,7 +53,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... snadjdf
+- 🔭 I’m currently working on ... snadjdf god 
 - 🌱 I’m currently learning ... ffchhb ffb had
 - 👯 I’m looking to collaborate on ... 
 - 🤔 I’m looking for help with ... shat dksksjs
