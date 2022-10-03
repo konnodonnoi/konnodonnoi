@@ -56,7 +56,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on ... snadjdf god dad
 - 🌱 I’m currently learning ... ffchhb ffb had
 - 👯 I’m looking to collaborate on ... first did
-- 🤔 I’m looking for help with ... shat dksksjs
+- 🤔 I’m looking for help with ... shat dksksjs do i'd
 - 💬 Ask me about ... shat tfsdgiigf good good
 - 📫 How to reach me: hfgj ghost did so ah in
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf f
