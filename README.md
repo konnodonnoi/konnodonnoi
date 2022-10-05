@@ -59,6 +59,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... shat dksksjs do i'd
 - 💬 Ask me about ... shat tfsdgiigf good good
 - 📫 How to reach me: hfgj ghost did so ah in
-- 😄 Pronouns: shat hjgdddd sha van sha no on all bf f
+- 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f
 - ⚡ Fun fact: 4lines dj calabrese b God did
 -->
