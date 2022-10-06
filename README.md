@@ -57,7 +57,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ... ffchhb ffb had she sccf 
 - 👯 I’m looking to collaborate on ... first did
 - 🤔 I’m looking for help with ... shat dksksjs do i'd
-- 💬 Ask me about ... shat tfsdgiigf good good
+- 💬 Ask me about ... shat tfsdgiigf good good for
 - 📫 How to reach me: hfgj ghost did so ah in sha
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f
 - ⚡ Fun fact: 4lines dj calabrese b God did
