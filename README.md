@@ -54,7 +54,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... snadjdf god dad
-- 🌱 I’m currently learning ... ffchhb ffb had she sccf 
+- 🌱 I’m currently learning ... ffchhb ffb had she sccf food
 - 👯 I’m looking to collaborate on ... first did fry i us
 - 🤔 I’m looking for help with ... shat dksksjs do i'd go all
 - 💬 Ask me about ... shat tfsdgiigf good good for good sis
