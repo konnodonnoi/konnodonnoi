@@ -57,7 +57,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ... ffchhb ffb had she sccf food
 - 👯 I’m looking to collaborate on ... first did fry i us for
 - 🤔 I’m looking for help with ... shat dksksjs do i'd go all dm sh
-- 💬 Ask me about ... shat tfsdgiigf good good for good sis
+- 💬 Ask me about ... shat tfsdgiigf good good for good sis did
 - 📫 How to reach me: hfgj ghost did so ah in sha God for god
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f
 - ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for
