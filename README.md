@@ -1,4 +1,4 @@
-<h1 align="center"><p>hello there! 👋🏼</p> the name's konno donnoi</h1> 
+<h1 align="center"><p>hello there! 👋🏼</p> the name's kendrick!</h1> 
 
 <h3 align="center"><p>welcome... hehe</p></h3>
 
