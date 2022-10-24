@@ -53,7 +53,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... snadjdf god dad did food for sha
+- 🔭 I’m currently working on ... snadjdf god dad did food for sha dogs
 - 🌱 I’m currently learning ... ffchhb ffb had she sccf food dls sha
 - 👯 I’m looking to collaborate on ... first did fry i us for class dogs
 - 🤔 I’m looking for help with ... shat dksksjs do i'd go all dm sh Chad
