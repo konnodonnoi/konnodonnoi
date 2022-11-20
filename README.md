@@ -54,7 +54,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... snadjdf god dad did food for sha dogs did she ask
-- 🌱 I’m currently learning ... ffchhb  do d had she sccf food dls sha cj hd and vns
+- 🌱 I’m currently learning ... ffchhb  do d had she sccf food dls sha cj hd and vns xxl
 - 👯 I’m looking to collaborate on ... first did fry i us for class dogs sha dj j of fgs hi
 - 🤔 I’m looking for help with ... shat dksksjs do i'd go all dm sh Chad did write ssg
 - 💬 Ask me about ... shat tfsdgiigf good good for good sis did cmc did dna sh j gas so
