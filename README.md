@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... shat tfsdgiigf good good for good sis did cmc did dna sh j gas so
 - 📫 How to reach me: hfgj ghost did so ah in sha God for God food  sha did sha she and dad
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f an job does shab sha
-- ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for sha rip takeoff 
+- ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for sha rip takeoff all ah
 -->
