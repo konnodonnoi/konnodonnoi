@@ -60,5 +60,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... shat tfsdgiigf good good for good sis did cmc did dna sh j gas so happy new year ssg he asf at he
 - 📫 How to reach me: hfgj ghost did so ah in sha God for   sha did sha she and dad ask ask ah he ah ah Jr
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f an job does shab sha did sjak ah he asfsb duh he asf
-- ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for sha rip takeoff all ah do KFC fl LG go it go
+- ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for sha rip takeoff all ah do KFC fl LG go it go cv LG vn
 -->
