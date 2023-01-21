@@ -57,7 +57,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ... ffchhb  do d had she sccf food dls sha cj hd and vns XXL fog go ah he g do it first if g
 - 👯 I’m looking to collaborate on ... first did fry i us for class dogs sha dj j of fgs hi do it dry egg me Dr dB ha ah
 - 🤔 I’m looking for help with ... shat dksksjs do i'd go all dm sh ite ssg asks it's a new year boiii ah ha s CL LG
-- 💬 Ask me about ... shat tfsdgiigf good good for good sis did cmc did dna sh j gas so happy new year ssg he asf at he
+- 💬 Ask me about ... shat tfsdgiigf good good for good sis did cmc did dna sh j gas so happy new year ssg he asf at he cj kg go
 - 📫 How to reach me: hfgj ghost did so ah in sha God for   sha did sha she and dad ask ask ah he ah ah Jr as he asf by
 - 😄 Pronouns: shat hjgdddd sha van sha no on all bf  cur  ethg f an job does shab sha did sjak ah he asfsb duh he asf chi if go
 - ⚡ Fun fact: 4lines dj calabrese b God did had ha dls for sha rip takeoff all ah do KFC fl LG go it go cv LG vn go of FL
