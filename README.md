@@ -53,7 +53,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... snadjdf god dad did food for sha dogs did she ask xls do do cj kg vn of FL go if at
+- 🔭 I’m currently working on ... snadjdf god dad did food for sha dogs did she ask xls do do cj kg vn of FL go if at fuji it
 - 🌱 I’m currently learning ... ffchhb  do d had she sccf food dls sha cj hd and vns XXL fog go ah he g do it first if g ssg he
 - 👯 I’m looking to collaborate on ... first did fry i us for class dogs sha dj duh HD
 mj of fgs hi do it dry egg me Dr dB bbnh ha ah go HD vn
